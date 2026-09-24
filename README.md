@@ -1,0 +1,1 @@
+# The-Fallacy-of-Random-Point-Mass-Gravitation-Magnetic-Shielding-Constraints-on-Galactic-Encounters
